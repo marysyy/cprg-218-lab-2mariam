@@ -115,3 +115,24 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### beans and ricotta
+1 pound orecchiette or other short pasta
+
+1/2 cup olive oil
+
+2 garlic cloves, crushed
+
+12 ounces Swiss chard or mustard greens, stemmed
+
+12 ounces baby spinach leaves
+
+1 (15-ounce) can garbanzo beans, rinsed and drained
+
+2 cups small cherry or grape tomatoes
+
+8 ounces ricotta salata cheese, crumbled
+
+2 teaspoons lemon zest
+
+Kosher salt and freshly ground black pepper
